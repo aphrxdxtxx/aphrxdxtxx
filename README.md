@@ -11,6 +11,10 @@
        • Flutter
        • Sparx
        • Different Programming Languages
+       • Dancing in different styles
+       • Cooking
+       • To control my emotions, health and living
+       • Good and productive things
        
 📫 How to reach me:
       
