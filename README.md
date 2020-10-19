@@ -1,4 +1,4 @@
-### Hi there 👋 Aphrodite here! Wazzup hoomans?
+### Hi there 👋 Aphrodite here! Wazzup hoomans! What's POPPIN'?
 
   Bachelor of Science in Information System Student major in Business Analytics at West Visayas State University
   
